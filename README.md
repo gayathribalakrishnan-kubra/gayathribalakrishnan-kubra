@@ -1,4 +1,14 @@
-### Hi there 👋
+👋 Hi, I am Gayathri Balakrishnan
+
+**Working hours**
+
+9AM-5PM EST
+
+**Best ways to communicate with me**
+
+✔️ MS Teams: gayathri.balakrishnan@hearst.com
+
+✔️ Email: gayathri.balakrishnan@kubra.com
 
 <!--
 **gayathribalakrishnan-kubra/gayathribalakrishnan-kubra** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
