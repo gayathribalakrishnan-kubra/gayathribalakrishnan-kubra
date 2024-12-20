@@ -2,9 +2,7 @@
 
 **Working hours**
 
-9AM-5PM EST - Mon, Wed, Fri
-
-9:30 AM - 5:30PM - Tue, Thurs
+9AM-5PM EST - Mon-Fri
 
 **Best ways to communicate with me**
 
